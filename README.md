@@ -1,2 +1,1 @@
-Codigos del video (: Aquí
-DENTRO DE POCO NUEVO VIDEO SOBRE CREAR UN BOT
+Dentro de poco subo video sobre crear un bot, ¡Estar atentos!
